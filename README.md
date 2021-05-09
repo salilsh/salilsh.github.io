@@ -1,2 +1,2 @@
 
-# Personal/professionla blog (s0rta)
+# Personal/professional blog (s0rta)
